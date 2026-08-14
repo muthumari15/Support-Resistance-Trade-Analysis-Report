@@ -1,0 +1,1 @@
+# Support-Resistance-Trade-Analysis-Report
